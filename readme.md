@@ -1,0 +1,1 @@
+Boa tarde professora, nosso trabalho nao foi como esperado, queria algo mais detalhado como fiz na criacao dos prototipos, ele nao esta funcionando pois a API é paga, um custo de $5 pra pdoer colocar ele para funcionar, nao consigo pagar isso agora mas obrigalo pela oportunidade.
